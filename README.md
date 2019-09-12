@@ -1,1 +1,0 @@
-# bincykp.github.io
